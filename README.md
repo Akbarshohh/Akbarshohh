@@ -3,10 +3,12 @@
  
  
 # ✨ Who I am?
- 
-👋 Hi, My name is Rabidullayev Akbarshoh. Im 14 years old. 
 
-💪 My favourite sports is : ⚽️football, 🏀basketball, 🏐volleyball, 🎾tennis.
+👋 Hi, My name is Rabidullayev Akbarshoh. Im 16 years old. 
+
+
+
+💪 My Hobbies : ⚽️playing football, 🏀playing basketball, 🎮playing video games, 👨‍💻creating programs.
 
 
 
