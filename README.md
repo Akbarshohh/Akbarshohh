@@ -4,15 +4,14 @@
  
 # ✨ Who I am?
 
-👋 Hi, My name is Rabidullayev Akbarshoh. Im 16 years old. 
+👋 HELLO, MY NAME IS AKBARSHOH AND I'M GOING TO BECOME ROBLOX PROGRAMMER OR ROBLOX SOFTWARE ENGINEER
 
 
 
-💪 My Hobbies : ⚽️playing football, 🏀playing basketball, 🎮playing video games, 👨‍💻creating programs.
+💪 MY HOBBIES:    I USUALLY PLAY FOOTBALL AND SOME BASKETBALL AND MY REAL HOBBY IS WORKING ON PROJECTS
 
 
-
-## 🖥Technologies I use:
+## 🖥TECHNOLOGIES I USE:
 
 
 
