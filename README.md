@@ -1,14 +1,4 @@
-![gif](https://github.com/Akbarshohh/Akbarshohh/assets/155226217/a820c8da-a89f-455b-a8d6-5ed908dec01e)
- 
- 
- 
-# ✨ Who I am?
-
-👋 HELLO, MY NAME IS AKBARSHOH AND I'M GOING TO BECOME ROBLOX PROGRAMMER OR ROBLOX SOFTWARE ENGINEER
-
-
-
-💪 MY HOBBIES:    I USUALLY PLAY FOOTBALL AND SOME BASKETBALL AND MY REAL HOBBY IS WORKING ON PROJECTS
+![gif](https://github.com/Akbarshohh/Akbarsho
 
 
 ## 🖥TECHNOLOGIES I USE:
