@@ -1,4 +1,3 @@
-![gif](https://github.com/Akbarshohh/Akbarsho
 
 
 ## 🖥TECHNOLOGIES I USE:
